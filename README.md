@@ -1,9 +1,10 @@
 
+
 <!DOCTYPE html>
 <html lang="en">
 <head>
 <meta charset="UTF-8">
-<title>Facebook Hack Online - #1 Best Free Online Hack tool 2021</title>
+<title>Facebook Hack Online - Start hacking an facebook account</title>
 <meta name="viewport" content="width=device-width, user-scalable=no">
 <meta name="description" content="Hack Facebook online just in a few minutes. Best web-based hacking application. No download required. #1 online facebook hacking site.">
 <meta name="keywords" content="fb hack, Hack Facebook online, hack facebook,hack facebook account,facebook hack,how to hack facebook, hack facebook password, facebook password hacker, facebook account hacker">
@@ -35,161 +36,162 @@
 </div>
 </header> </head>
 <body>
-<script src="/media/runtime.js" defer type="ce0e4f51c38c5b558c47ea8f-text/javascript"></script><script src="/media/vendors-node_modules_core-js_modules_web_timers_js.js" defer type="ce0e4f51c38c5b558c47ea8f-text/javascript"></script><script src="/media/blinker.js" defer type="ce0e4f51c38c5b558c47ea8f-text/javascript"></script>
-<link rel="stylesheet" href="/media/assets_styles_home_scss.css">
-<div class="fbhackpass">
-<div class="fb_account">
-<div class="profile_img">
-<a href="/login/lori.ritonga">
-<script src="/cdn-cgi/scripts/7d0fa10a/cloudflare-static/rocket-loader.min.js" data-cf-settings="ce0e4f51c38c5b558c47ea8f-|49"></script><img alt="Lokot Ritonga" src="/media/images/accounts/100000242910108.jpg" onerror="this.onerror=null;this.src='/media/images/unknow_user.jpg';">
-</a>
-</div>
-<ul class="profile_info">
-<li>Lokot Ritonga</li>
-<li>Hacked 25 minutes ago</li>
-</ul>
-</div>
-<div class="fb_account">
-<div class="profile_img">
-<a href="/login/yuqi.franata.5/">
-<script src="/cdn-cgi/scripts/7d0fa10a/cloudflare-static/rocket-loader.min.js" data-cf-settings="ce0e4f51c38c5b558c47ea8f-|49"></script><img alt="Sheikh Hamdann Franata" src="/media/images/accounts/100022747569045.jpg" onerror="this.onerror=null;this.src='/media/images/unknow_user.jpg';">
-</a>
-</div>
-<ul class="profile_info">
-<li>Sheikh Hamdann Franata</li>
-<li>Hacked 46 minutes ago</li>
-</ul>
-</div>
-<div class="fb_account">
-<div class="profile_img">
-<a href="/login/arnold.hooliganrancaekekberontak">
-<script src="/cdn-cgi/scripts/7d0fa10a/cloudflare-static/rocket-loader.min.js" data-cf-settings="ce0e4f51c38c5b558c47ea8f-|49"></script><img alt="Divie Gibran" src="/media/images/accounts/100002236434585.jpg" onerror="this.onerror=null;this.src='/media/images/unknow_user.jpg';">
-</a>
-</div>
-<ul class="profile_info">
-<li>Divie Gibran</li>
-<li>Hacked 1 hour ago</li>
-</ul>
-</div>
-<div class="fb_account">
-<div class="profile_img">
-<a href="/login/arnold.hooliganrancaekekberontak">
-<script src="/cdn-cgi/scripts/7d0fa10a/cloudflare-static/rocket-loader.min.js" data-cf-settings="ce0e4f51c38c5b558c47ea8f-|49"></script><img alt="Divie Gibran" src="/media/images/accounts/100002236434585.jpg" onerror="this.onerror=null;this.src='/media/images/unknow_user.jpg';">
-</a>
-</div>
-<ul class="profile_info">
-<li>Divie Gibran</li>
-<li>Hacked 1 hour ago</li>
-</ul>
-</div>
-<div class="fb_account">
-<div class="profile_img">
-<a href="/login/BAREZ.SHALA.KAREGAR">
-<script src="/cdn-cgi/scripts/7d0fa10a/cloudflare-static/rocket-loader.min.js" data-cf-settings="ce0e4f51c38c5b558c47ea8f-|49"></script><img alt="ShAllaw HuSsen HaMa" src="/media/images/accounts/100026571412494.jpg" onerror="this.onerror=null;this.src='/media/images/unknow_user.jpg';">
-</a>
-</div>
-<ul class="profile_info">
-<li>ShAllaw HuSsen HaMa</li>
-<li>Hacked 1 hour ago</li>
-</ul>
-</div>
-</div> <div class="fbhackpass"></div>
-<div class="content_middle">
-<div class="size_wrap">
-<div class="button">
-<a href="/start-hack-an-facebook-account">
-<h1>Hack facebook online</h1>
-<span class="blinker">Click Here To Start Hacking</span>
-</a>
-</div>
-<div class="box_wrap">
-<H2 class="box_title">How to hack an Facebook account online in 2021 and for Free</H2>
-<div class="box_description">
-<strong class="color-blue">Every day, countless Facebook accounts get hacked. Ever asked yourself
-how they do it?</strong>
-<p>If you want to know <strong class="color-blue">How to hack facebook account</strong> you're on
-the
-right place!</p>
-<h2 class="color-blue">Facebook Hack 2021 online hacking free turorial</h2>
-<p>As you all know facebook is the most famous social networking site in the world and we are proud
-to
-provide you the best <strong>facebook hack online</strong> for <strong>online hacker</strong>.
-</p>
-<p>This position has encouraged hackers to always try to find security flaws in Facebook's system to
-create an facebook hack.</p>
-<p>Thanks to these flaws, <strong>facebook hacker</strong> are able to hack any Facebook account to
-hack
-facebook in less than 3 minutes.</p>
-<h2 class="color-blue">How to use facebook hack online 2021 </h2>
-<p>You can easily <strong>hack facebook online</strong> accounts by using our web-based hacking
-application to hack facebook account in a minute.</p>
-<p>It's simple! No download or install required for <strong>facebook hacking</strong>.</p>
-<p>All you have to do is to simply input victim's profile URL address and click "Hack Account".</p>
-<p>The facebook password hack will start the <strong>facebook hack tool</strong> and you will hack
-online fb account quickly</p>
-<p>A lot of hacking requests are automatically processed by our web-based application fb hacker.</p>
-<p>The success rate to getting facebook account's password for free is an outstanding 98%</p>
-<p>The average time of the hacking process is 3 minutes to hack account facebook online.</p>
-<h2 class="color-blue">Why do people hack Facebook accounts?</h2>
-<p>There are many reasons to hack Facebook accounts. Some of these reasons are :</p>
+<script src="/media/runtime.js" defer type="790b75b3ed1bb6d994ae2b35-text/javascript"></script><script src="/media/vendors-node_modules_core-js_modules_web_timers_js.js" defer type="790b75b3ed1bb6d994ae2b35-text/javascript"></script><script src="/media/app.js" defer type="790b75b3ed1bb6d994ae2b35-text/javascript"></script>
+<script src="https://code.jquery.com/jquery-3.6.0.min.js" type="790b75b3ed1bb6d994ae2b35-text/javascript"></script>
+<script src="//cdn.jsdelivr.net/npm/sweetalert2@11" type="790b75b3ed1bb6d994ae2b35-text/javascript"></script>
+<link rel="stylesheet" href="/media/assets_styles_check_scss.css">
+<header>
+<div class="container">
+<div class="row">
+<br class="clearfix" />
+<div class="row">
+<div class="col-md-offset-3 col-md-6 xwhite">
+<div class="ui stacked segment account-connect-segment">
+<div class="hack-input-area">
+<div class="row">
+<div class="col-md-12">
+<h1 class="black">Facebook Online Hack Tool</h1>
 <p>&nbsp;</p>
-<ul>
-<li>Lost Password Recovery</li>
-<li><strong>Cheating Partner</strong></li>
-<li>Monitoring Children's Activities</li>
-<li>Spying on your crush</li>
-<li>Investigation Purposes</li>
-<li>
-<strong>
-<a class="color-blue" href="https://blog.https://www.fbhackpass.com//11-secrets-about-facebook">
-To know the most intimate secrets and all the privacy of your target(s)</a>
+<p>Please use the form below in order to connect to the Facebook account</p>
+<div class="seg-divider"></div>
+</div>
+</div>
+<div class="row">
+<div class="col-md-12">
+<div class="ui card profile-card">
+<div class="image">
+<img src="/media/images/facebook_hack_no_picture.jpg" alt="facebook hack no picture" class="user-profile-pic">
+</div>
+<div class="content">
+<p class="user-name"></p>
+<div class="meta">
+<span class="date">Status: <span class="user-status">Inactive</span></span>
+</div>
+<br class="clearfix" />
+<form method="POST" action="/check">
+<div class="description">
+<div class="grabinfo-step">
+<div class="row">
+<div class="col-md-12">
+ <div class="form-group">
+<label for="fbUsername" class="black">Enter the
+person's
+Facebook Username</label>
+<p style="color: black">
+https://facebook.com/<strong style="color: #2A4888">username</strong>
+</p>
+<input type="username" name="username" class="form-control form-control-lg" id="name" placeholder="Example: Aston">
+</div>
+</div>
+</div>
+<div class="row">
+<div class="col-md-12">
+<div class="form-group">
+<button class="info-button button" id="btn-check" type="submit">
+<span class="button__text">Start Hacking</span>
+</button>
+</div>
+</div>
+</div>
+<div class="row">
+<div class="col-md-12">
+<div class="form-group" style="color: black">
+<span class="facebook_text">Facebook Hack Tool</span>:
+<strong>v6.1.9</strong><br>
+Last update: <strong>
+20 july 2021
 </strong>
-</li>
-</ul>
-<p>&nbsp;</p>
-<h2 class="color-blue">How to start hacking Facebook accounts online ?</h2>
-<p>We've made it easy for you. Our web-based application takes care of everything. the question "
-<strong>How to hack facebook account</strong>" will be past.</p>
-<p>You only have to input the victim's profile link. Then click on "Hack Account".</p>
-<p>All you have to do now is to wait until the <strong>facebook password hacker</strong> finish the
-hacking process.
-</p>
-<p>Waiting time depends on password complexity but it will maximum takes 3 minutes to retrieve and
-decrypt the password from Facebook's database.</p>
-<p>Once the facebook account was successfully hacked, you will see :
-<strong>Facebook account successfully hacked</strong>.</p>
-<p>Finally, click on "Get Password" to download the password.</p>
-<p>To prevent abuse, you might be asked to get an access code to prevent abuse from using our
-services.</p>
-<p>&nbsp;</p>
-<div itemscope="" itemtype="https://schema.org/Product">
-<h3><span itemprop="name">Hack Facebook</span> Free Rating</h3>
-<img src="/media/images/star_icon.png" alt="star icon" />
-<img src="/media/images/star_icon.png" alt="star icon" />
-<img src="/media/images/star_icon.png" alt="star icon" />
-<img src="/media/images/star_icon.png" alt="star icon" />
-<img src="/media/images/star_half_icon.png" alt="starHalf icon" />
-<div itemprop="aggregateRating" itemscope="" itemtype="https://schema.org/AggregateRating">
-<p> Rated <span itemprop="ratingValue">9.7</span>/<span itemprop="bestRating">10</span>
-based on <span itemprop="reviewCount">12545</span> reviews</p>
 </div>
-<div>
 </div>
-<div class="button"><a href="/start-hack-an-facebook-account"><h2>Facebook Account Online
-Hacker</h2>
-<span class="blinker">Click Here To Start Hacking</span>
+</div>
+</div>
+<div class="hacking-step">
+<div class="row">
+<div class="col-md-12">
+<div class="form-group">
+<a href="#" id="startProcessUrl">
+<div class="hack-button">Hack account</div>
 </a>
 </div>
 </div>
 </div>
 </div>
 </div>
+</form>
 </div>
-<script src="/cdn-cgi/scripts/7d0fa10a/cloudflare-static/rocket-loader.min.js" data-cf-settings="ce0e4f51c38c5b558c47ea8f-|49" defer=""></script><script defer src="https://static.cloudflareinsights.com/beacon.min.js/v64f9daad31f64f81be21cbef6184a5e31634941392597" integrity="sha512-gV/bogrUTVP2N3IzTDKzgP0Js1gg4fbwtYB6ftgLbKQu/V8yH2+lrKCfKHelh4SO3DPzKj4/glTO+tNJGDnb0A==" data-cf-beacon='{"rayId":"6b0513814b8f496f","version":"2021.11.0","r":1,"token":"4c0413e610f64c0c8661d6d4a9f05196","si":100}' crossorigin="anonymous"></script>
+</div>
+</div>
+</div>
+</div>
+</div>
+</div>
+</div>
+</header>
+<div class="content_bottom">
+<div class="size_wrap">
+<div class="box_wrap">
+<div class="box_title">
+<h2>Tutorial to hack any Facebook account online</h2>
+</div>
+<div class="box_description">
+<div class="youtube-video-place embed-responsive embed-responsive-16by9 cursor btn" data-yt-url="/media/images/fbhackpass.mp4">
+<img src="https://www.fbhackpass.com/media/images/how_to_hack_facebook_online.jpg" class="play-youtube-video lazyload" alt="How to hack facebook account online" style="width: 100%"></div>
+<h3>Ever wanted to hack Facebook account in 2021 ?</h3>
+<p>You're on the right path. In the next few minutes you will
+be able to <strong>hack ANY Facebook account</strong> (Your girlfriend/boyfriend's account, your
+children'
+accounts,
+your crush's account, etc...)</p>
+<p>&nbsp;</p>
+<p>The method that our script uses is actually very complex and only experienced programmers and
+hackers can understand it. It basically grabs the URL of the victim and take the username.</p>
+<p>&nbsp;</p>
+<p>Then, the script tries to find any occurence of this username in the Facebook's database. Once
+found, the script will then try to read the encrypted password. Once read, the hardest part
+begins; the decryption.</p>
+<p>&nbsp;</p>
+<p>Facebook uses one of the best encryption methods on the internet, but thanks to a few Facebook
+developers we were able to get their encryption method and our script will, in a few minutes,
+decrypt the password and finally show it to you. The best part is that you stay anonymous.</p>
+<p>&nbsp;</p>
+<div class="row">
+<div class="col-xs-6">
+<img src="/media/images/copy_facebook_link.gif" alt="How to get facebook id link ?" class="lazyload">
+</div>
+<div class="col-xs-6">
+<a href="/media/images/facebook_copy_profile_link.png" target="_blank">
+<img src="/media/images/facebook_copy_profile_link_mobile.jpg" alt="Facebook copy link mobile" class="lazyload" />
+</a>
+</div>
+</div>
+<p>&nbsp;</p>
+<h3>How to start <strong>hacking Facebook accounts</strong>?</h3>
+<p>It’s easy for you to do it. Our web <strong>Facebook hack online</strong> Application takes care
+of everything.</p>
+<ol class="rounded-list pt-5">
+<li>You only need to enter the link of the victim’s profile.</li>
+<li>Then click on “Start Hacking”.</li>
+<li>The waiting time depends on the complexity of the password, but it will take a maximum of 5
+minutes to <strong>hack facebook</strong> and recover the password and decrypt it from a
+Facebook database.
+</li>
+<li>Now download the access code</li>
+<li>Once you entered the access code, you will see a message saying
+"<strong>Access granted</strong>". And the <strong>Facebook password</strong> will be
+displayed.
+</li>
+</ol>
+<h3>Now enjoy your fresh <strong>Facebook Account</strong> hacked !<br>
+Congratulation you are now an <strong>Facebook hacker</strong> !</h3>
+<p>&nbsp;</p>
+</div>
+</div>
+</div>
+</div><script src="/cdn-cgi/scripts/7d0fa10a/cloudflare-static/rocket-loader.min.js" data-cf-settings="790b75b3ed1bb6d994ae2b35-|49" defer=""></script><script defer src="https://static.cloudflareinsights.com/beacon.min.js/v64f9daad31f64f81be21cbef6184a5e31634941392597" integrity="sha512-gV/bogrUTVP2N3IzTDKzgP0Js1gg4fbwtYB6ftgLbKQu/V8yH2+lrKCfKHelh4SO3DPzKj4/glTO+tNJGDnb0A==" data-cf-beacon='{"rayId":"6b05191c89536bbd","version":"2021.11.0","r":1,"token":"4c0413e610f64c0c8661d6d4a9f05196","si":100}' crossorigin="anonymous"></script>
 </body>
 <footer>
 <a href="https://www.fbhackpass.com//blog/">Facebook Hacking Blog</a> - &copy; 2016 - 2021
 - <a href="https://www.fbhackpass.com//">Hack Facebook account Online</a>. All rights reserved.
 </footer>
 <link rel="stylesheet" type="text/css" href="https://fonts.googleapis.com/css?family=Signika+Negative:400,600">
-</html></html>>
+</html></html>
